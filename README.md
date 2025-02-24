@@ -11,4 +11,4 @@ Sản phẩm chất lượng cao: Búp bê TAT Dolls Store được sản xuất
 
 Với TAT Dolls Store, ước mơ búp bê của các bé sẽ không còn là điều xa vời! 
 
-(Trangg-Vanh-Tus)
+(Trangg-Vanh-Tus)!
